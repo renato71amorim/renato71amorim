@@ -1,4 +1,4 @@
-👋 Hi, I’m @renato71amorim
+👋 Hi, I’m Renato Amorim (@renato71amorim)
 
 👀 I’m interested in leveraging technology for social impact, innovative software development, and mentoring future leaders in the tech industry.
 
