@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that focus on social responsibility, technology for good, and educational initiatives that empower individuals through knowledge.
 
-📫 How to reach me: You can connect with me through my website at renatoamorim.com or via email at renato.amorim@email.com.
+📫 How to reach me: You can connect with me through my website at renatoamorim.com or via email at contato@renatoamorim.com.
 
 
 <!---
